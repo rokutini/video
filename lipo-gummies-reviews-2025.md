@@ -5,9 +5,9 @@
 "02 minutes ago — Lipo Gummies Reviews
 
 
-[🌐 CLICK HERE 🟢==►► WATCH NOW](https://realprimeshop.com/order-Lipo)
+[🌐 CLICK HERE 🟢==►► Read More](https://realprimeshop.com/order-Lipo)
 
-[🔴 CLICK HERE 🌐==►► Download Now](https://realprimeshop.com/order-Lipo)
+[🔴 CLICK HERE 🌐==►► Read More](https://realprimeshop.com/order-Lipo)
 
 [![WATCH Videos](https://i.imgur.com/dJHk4Zq.gif)](https://realprimeshop.com/order-Lipo)
 
